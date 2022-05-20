@@ -1,3 +1,0 @@
-hello so i am gonna show you how to get ip using image 
-
-and its not fake, keep watching.....
